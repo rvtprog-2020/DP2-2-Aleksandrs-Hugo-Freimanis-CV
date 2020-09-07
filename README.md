@@ -1,4 +1,4 @@
 # Aleksandrs Hugo Freimanis
-## Adrese: Lambērtu āķi 
+Adrese: Lambērtu āķi 
 Telefons: +371 27850381
-## E-pasts: DuckOverlord@protonmail.com
+E-pasts: DuckOverlord@protonmail.com
