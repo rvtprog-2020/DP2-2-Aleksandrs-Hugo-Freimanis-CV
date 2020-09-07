@@ -7,3 +7,5 @@
 ## Izglītība
 ### Rīgas Valsts Tehnikums programmēšanas kursā (2018-Šodien)
 ### Ikšķiles Vidusskola pamatizglītība (2009-2018)
+## Papildu izglītība/apmācības
+### Latviešu valoda 1.kursā (2020)
