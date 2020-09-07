@@ -1,2 +1,2 @@
 # Aleksandrs Hugo Freimanis
-## YUS
+## 
