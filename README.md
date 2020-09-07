@@ -12,5 +12,9 @@
 ## Darba Pieredze
 ### Nav
 ## Valoda Zināšanas
-### Dzimtā valoda: Latviešu valoda
+### Dzimtā valoda - Latviešu valoda
 ### Angļu valoda - vidējais līmenis
+## Citas Prasmes
+### Nav
+## Hobiji, Intereses
+### Lasu brīvajā laikā grāmatas un ir interese ar programmēšanu vispārīgi. 
