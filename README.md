@@ -9,3 +9,8 @@
 ### Ikšķiles Vidusskola pamatizglītība (2009-2018)
 ## Papildu izglītība/apmācības
 ### Latviešu valoda 1.kursā (2020)
+## Darba Pieredze
+### Nav
+## Valoda Zināšanas
+### Dzimtā valoda: Latviešu valoda
+### Angļu valoda - vidējais līmenis
