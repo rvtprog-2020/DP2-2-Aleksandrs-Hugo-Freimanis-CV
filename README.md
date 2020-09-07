@@ -2,3 +2,4 @@
 ### Adrese: Lambērtu āķi 
 ### Telefons: +371 27850381
 ### E-pasts: DuckOverlord@protonmail.com
+## Īss raksturojums un mērķis
